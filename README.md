@@ -1,5 +1,5 @@
 King Umana is a social media influencer, affiliate marketer, music marketer and Blogger.
-.
+
 King Umana has created a positive impact in the affairs of local businesses, and people.
 He started social media influencing, and affiliate marketing on 15th of January 2020.
 
